@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/4aee0b6e-48d0-40f6-915e-053ec2ee5451)
 ## [ulqNM #RuyK edit#](https://drive.google.com/file/d/19S2_eOiApRrA0NKU8XqYvU55EUaskBxf/view?usp=sharing)
 ![image](https://github.com/user-attachments/assets/b587a5d4-8fb2-41c1-a181-ec23f1382694)
-## [ulqNM #azerestia#(utsuloli edit)(https://drive.google.com/file/d/1VoVAZSxrndmfapw37nfS_39TX_aHwUuP/view?usp=sharing)
+## [ulqNM #azerestia#(utsuloli edit)](https://drive.google.com/file/d/1VoVAZSxrndmfapw37nfS_39TX_aHwUuP/view?usp=sharing)
 ![image](https://github.com/user-attachments/assets/17f108a4-ac34-4909-a441-0bc9f4709f38)
 ## [ulqNM #Aesthetic#](https://drive.google.com/file/d/1732WVFXt9ha6VZQ9mvCERyphALWL8yqr/view?usp=sharing)
 ![image](https://github.com/user-attachments/assets/c0314200-d0a7-4338-9412-42f7132289e6)
